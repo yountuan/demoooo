@@ -32,7 +32,11 @@ Thank you for your attention
 more about my project I told in the video by the link below.
 
 else, there are some feedbacks from my mates by the link
+
 https://drive.google.com/file/d/10tQhf91BoMIdvYro7sjhK982AoH_mouz/view?usp=sharing
 https://drive.google.com/file/d/1b4XixGZKD0waWVARMU0MGktPi5zKVINN/view?usp=sharing
+
+And here is the video explanation of the project
+https://drive.google.com/file/d/1JfAU1nRf15gp2Bp8crcsoW8ZVQzUoeB-/view?usp=sharing
 
 
